@@ -1,6 +1,6 @@
 # Problems with Schools 
 
-## From the Point of View of a “Smart” Kid 
+## From the Point of View of a “Smart” Student
 
 ## By Logan Mortimer 
 
