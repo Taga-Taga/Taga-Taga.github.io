@@ -27,7 +27,7 @@ Captive audience is basically forcing us to go to school. As told by my History 
 
 These restrictions are:
 >1. No hate speech (Targeting, etc.)
->2. No vulgarity.
+>2. No vulgarity
 
 If I'm going to be here against my will, I am going to fucking say what I want. I honestly don't care if kids are around, because they'll know when they're older. In fact, I really could revolt and not come to school. I would likely be dragged out of my house to go to school, because of the law, but there's nothing currently stopping me. I could purposely fail state tests.
 
