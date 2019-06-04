@@ -17,6 +17,13 @@ People say that we students, Generation Z (Gen Z), are extremely dependent and t
 
 ## Teachers and Methods
 Teachers are following instructions and rubrics of our nation, states, local areas, and even the boards of education of their schools. If you don’t see a problem, then let me explain. Our teachers do not have a chance to discover how well we adapt to their class, how well we learn, and how much we actually want to learn about their subject. Sure, we do test and check kids at young ages to see if they aren’t as well in ‘learning’ capacity. Yes, it can help detect problems, however, after the initial screenings, no other tests are conducted. We should organize by learning speed and wanted subjects, not by straight cores and electives. Yes, I __do__ understand that this may create prejudice and bullying, however, what do __you__ think is already happening at our schools? We already have bullies, and the ‘tactics’ and ‘strategies’ put in place don’t actually help, more or less they just spread awareness.
+We are unable to vote. Teachers, parents, etc. are able to vote. We really don't have a say in it, unless we revolt. We'll whine to you like it's your fault if we want to. You aren't changing anything. We can't change anything. It might not be your fault, but you aren't doing anything to change it.
 
-### Monarchy, Democracy, and Pseudo-Idealogies
+## Discipline
+Captive audience is basically forcing us to go to school. As told by my History teacher, we are allowed to have opinions and spread opinions at school, with a few restrictions:
+1. No hate speech (Targeting, etc.)
+2. No vulgarity.
+If I'm going to be here against my will, I am going to fucking say what I want. I honestly don't care if kids are around, because they'll know when they're older. 
+
+## Monarchy, Democracy, and Pseudo-Idealogies
 ***Unfinished***
