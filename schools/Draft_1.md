@@ -20,10 +20,13 @@ Teachers are following instructions and rubrics of our nation, states, local are
 We are unable to vote. Teachers, parents, etc. are able to vote. We really don't have a say in it, unless we revolt. We'll whine to you like it's your fault if we want to. You aren't changing anything. We can't change anything. It might not be your fault, but you aren't doing anything to change it.
 
 ## Discipline
-Captive audience is basically forcing us to go to school. As told by my History teacher, we are allowed to have opinions and spread opinions at school, with a few restrictions:
-1. No hate speech (Targeting, etc.)
-2. No vulgarity.
-If I'm going to be here against my will, I am going to fucking say what I want. I honestly don't care if kids are around, because they'll know when they're older. 
+Captive audience is basically forcing us to go to school. As told by my History teacher,
+> We are allowed to have opinions and spread opinions at school, with a few restrictions
+
+These restrictions are:
+>1. No hate speech (Targeting, etc.)
+>2. No vulgarity.
+If I'm going to be here against my will, I am going to fucking say what I want. I honestly don't care if kids are around, because they'll know when they're older. In fact, I really could revolt and not come to school. I would likely be dragged out of my house to go to school, because of the law, but there's nothing currently stopping me. I could purposely fail state tests.
 
 ## Monarchy, Democracy, and Pseudo-Idealogies
 ***Unfinished***
