@@ -10,6 +10,7 @@
 
 ## Rote Memorization VS. Learning
 The United States of America, Home of the Free, Land of the Brave, ranks 27th in education in the world. We would think that the US, the supposed country of refuge and love, would rank higher, but it doesn’t. Finland ranks first. Finland allows teachers to teach in different ways, to use different methods to teach students. This allows the teachers to better adapt to their students and teach them in a way that benefits everyone. In the US, we are using rote memorization, which, a long time ago, when child labor laws didn’t exist and teaching children didn’t matter, was fine, because all we really had to do was teach them to work and let them off. However, today, we still use rote memorization today, and it isn’t helping. Our teachers are following strict instructions, we students are dying, our creativity is already dead, but our opinions will shine. 
+
 Rote memorization is based on repetition. It’s destroying us, the students, by either forcing knowledge down our throats, or starving us, sometimes both in classes, subjects, or with teachers. Knowledge can be acquired by both rote memorization and learning; however, learning is what we should be striving for. Learning is to be able to develop a way to intercept knowledge, to be able to receive knowledge in a way that you yourself can understand. Learning is to be able to apply what you already know in a way that you know yourself. Rote memorization forces you to use one method for everything, and it criticizes you regardless. We are tested on things that we don’t even know because we weren’t actually taught it, we were ‘supposed to be able to infer’ when the inference is far from perceivable. Of course, once we see it and how it has happened, we may get it, but then another issue comes upon us: dependency.
 
 ## Dependancy
@@ -18,5 +19,17 @@ People say that we students, Generation Z (Gen Z), are extremely dependent and t
 ## Teachers and Methods
 Teachers are following instructions and rubrics of our nation, states, local areas, and even the boards of education of their schools. If you don’t see a problem, then let me explain. Our teachers do not have a chance to discover how well we adapt to their class, how well we learn, and how much we actually want to learn about their subject. Sure, we do test and check kids at young ages to see if they aren’t as well in ‘learning’ capacity. Yes, it can help detect problems, however, after the initial screenings, no other tests are conducted. We should organize by learning speed and wanted subjects, not by straight cores and electives. Yes, I __do__ understand that this may create prejudice and bullying, however, what do __you__ think is already happening at our schools? We already have bullies, and the ‘tactics’ and ‘strategies’ put in place don’t actually help, more or less they just spread awareness.
 
-### Monarchy, Democracy, and Pseudo-Idealogies
+We are unable to vote. Teachers, parents, etc. are able to vote. We really don't have a say in it, unless we revolt. We'll whine to you like it's your fault if we want to. You aren't changing anything. We can't change anything. It might not be your fault, but you aren't doing anything to change it.
+
+## Discipline
+Captive audience is basically forcing us to go to school. As told by my History teacher,
+> We are allowed to have opinions and spread opinions at school, with a few restrictions
+
+These restrictions are:
+>1. No hate speech (Targeting, etc.)
+>2. No vulgarity
+
+If I'm going to be here against my will, I am going to fucking say what I want. I honestly don't care if kids are around, because they'll know when they're older. In fact, I really could revolt and not come to school. I would likely be dragged out of my house to go to school, because of the law, but there's nothing currently stopping me. I could purposely fail state tests.
+
+## Monarchy, Democracy, and Pseudo-Idealogies
 ***Unfinished***
